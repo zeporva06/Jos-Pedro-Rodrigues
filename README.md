@@ -10,4 +10,4 @@ Você pode entrar em contato comigo 📫
 - josepedrorrodrigues@gmail.com
 - @jpedro.rodrigues
 
-![](https://images.app.goo.gl/BkMJXcqQeafSEVdq5)
+![](https://media4.giphy.com/media/DBW3BniaWrFo4/200w.gif?cid=6c09b952cgof5t2pl43608iqa3w9fxko31d01k9t0twwfpon&ep=v1_gifs_search&rid=200w.gif&ct=g)
